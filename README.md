@@ -1,3 +1,0 @@
-# Fikir.github.io
-
-ddddddd
